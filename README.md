@@ -1,0 +1,2 @@
+# informatyka
+bo tak xd
